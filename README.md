@@ -21,8 +21,8 @@ I have endured living a life of scavenging like a rat among the hollowed husks o
 
 Personality:<br />
 
-Positive: Adaptable, Willful, Decisive
-Negative: Manipulative, Cowardly<br />
+Positive: Adaptable, Willful, Decisive <br />
+Negative: Manipulative, Cowardly <br />
 I strongly believe  that every person should be out for themselves. It’s perfectly fine to work collaboratively with a group but if the situation ends up negatively impacting our group then there is no point in sticking together. I believe in the willpower of the individual over the need to accommodate those who are dependent on others to survive. I am manipulative and good at weaseling my way out of personal accountability.<br /> 
 
 ㅡ<br />
