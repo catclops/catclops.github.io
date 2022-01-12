@@ -1,7 +1,7 @@
 ## Welcome to my ENG 388A Profile Page
 
 
-Your Name: Spencer Spooner
+Your Name: Stanley Spooner
 
 
 
